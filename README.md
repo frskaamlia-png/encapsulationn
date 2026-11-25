@@ -1,1 +1,1 @@
-# encapsulationn
+Nama : friska amelia putri
